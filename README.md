@@ -3,4 +3,4 @@ a newcomer‘s repository
 
 Hello Nihao
 
-I 
+I have a dream
